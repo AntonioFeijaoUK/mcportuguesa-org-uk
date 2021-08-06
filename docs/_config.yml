@@ -10,4 +10,10 @@ title: Missão Catálica Portuguesa de Londres
 description: Missão Catálica Portuguesa de Londres
 
 show_downloads: false
+github: false
+
 google_analytics:
+
+plugins:
+ - jekyll-feed
+ - jekyll-seo-tag
