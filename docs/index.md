@@ -13,7 +13,7 @@ There is a Portuguese Mass on most Sundays at 5pm in Our Lady of Hal Church. If 
 > Tel: 020 7587 0881 (will only be answered when in the office so please do keep trying).
 
 [website]
-(http://www.mcportuguesa.org.uk/) 
+(https://www.mcportuguesa.org.uk/) 
 and <capaelo@mcportuguesa.org.uk>
 
 
