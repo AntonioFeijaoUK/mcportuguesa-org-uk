@@ -21,21 +21,21 @@ email: <capaelo@mcportuguesa.org.uk>
 
 ## Permanencia na Missao
 
-> Portuguese-Church
-> Camden Town,
-> 165 Arlington Road,
-> London NW1 7EX
+> Portuguese-Church  
+> Camden Town,  
+> 165 Arlington Road,  
+> London NW1 7EX  
 
-> QUARTAS – DAS 11 AS 15
+> QUARTAS – DAS 11 AS 15  
 > SABADOS – CASAMENTOS E BAPTIZADOS – DAS 10 AS 14
 
 
 ## Residencia Paroquial
 
-> 6 Minerva Close
-> London
-> SW9 6NZ
-> T. 020 7587 0881
+> 6 Minerva Close  
+> London  
+> SW9 6NZ  
+> T. 020 7587 0881  
 
-> TERCAS – QUINTAS E SEXTAS
+> TERCAS – QUINTAS E SEXTAS  
 > DAS 14.30 AS 18.30
