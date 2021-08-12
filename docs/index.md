@@ -13,7 +13,7 @@ There is a Portuguese Mass on most Sundays at 5pm in Our Lady of Hal Church. If 
 > Tel: 020 7587 0881 (will only be answered when in the office so please do keep trying).
 
 website: [https://www.mcportuguesa.org.uk/](https://www.mcportuguesa.org.uk/)  
-and email: <capaelo@mcportuguesa.org.uk>
+email: <capaelo@mcportuguesa.org.uk>
 
 
 [ Diocese of Westminster](https://parish.rcdow.org.uk/camdentown/portuguesechurch/)
