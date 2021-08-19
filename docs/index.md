@@ -1,6 +1,6 @@
 ## Portuguese Church
 
-### Missao Catolica Portuguesa
+### Missão Católica Portuguesa
 
 ![our-lady-of-fatima](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Fatima_%283%29.jpg/271px-Fatima_%283%29.jpg)
 
@@ -16,10 +16,10 @@ website: [https://www.mcportuguesa.org.uk/](https://www.mcportuguesa.org.uk/)
 email: <capaelo@mcportuguesa.org.uk>
 
 
-[ Diocese of Westminster](https://parish.rcdow.org.uk/camdentown/portuguesechurch/)
+[Diocese of Westminster](https://parish.rcdow.org.uk/camdentown/portuguesechurch/)
 
 
-## Permanencia na Missao
+## Permanência na Missão
 
 > Portuguese-Church  
 > Camden Town,  
@@ -30,7 +30,7 @@ email: <capaelo@mcportuguesa.org.uk>
 > SABADOS – CASAMENTOS E BAPTIZADOS – DAS 10 AS 14
 
 
-## Residencia Paroquial
+## Residência Paróquial
 
 > 6 Minerva Close  
 > London  
