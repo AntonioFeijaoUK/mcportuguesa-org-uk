@@ -18,7 +18,7 @@ If you would like to speak to the Portuguese Priest, please contact:
 
 website: [https://www.mcportuguesa.org.uk/](https://www.mcportuguesa.org.uk/)  
 
-email: <capelareinounido@gmail.com>
+email: <capelaoreinounido@gmail.com>
 
 
 ## Residência Paróquial
