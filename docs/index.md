@@ -4,7 +4,7 @@
 
 ## Missa online
 
-Terça a Sábado às 19:00 na nossa pagina do facebook >> CCP - Capelania Portuguesa <<
+Terça a Sábado às 19:00 na nossa pagina do facebook >> [CCP - Capelania Portuguesa](https://www.facebook.com/pages/category/Catholic-Church/Capelania-Portuguesa-1856454771143557/) <<
 
 There is a Portuguese Mass on most Sundays at 5pm in Our Lady of Hal Church.
 
