@@ -10,9 +10,9 @@ There is a Portuguese Mass on most Sundays at 5pm in Our Lady of Hal Church.
 
 If you would like to speak to the Portuguese Priest, please contact:
 
-> 6 Minerva Close
-> London
-> SW9 6NZ
+> 6 Minerva Close  
+> London  
+> SW9 6NZ  
 
 > Tel: 020 7587 0881 (will only be answered when in the office so please do keep trying).
 
