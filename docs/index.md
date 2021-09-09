@@ -2,6 +2,8 @@
 
 <!-- ![our-lady-of-fatima](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Fatima_%283%29.jpg/271px-Fatima_%283%29.jpg) -->
 
+![missao-catolica-portuguesa-em-londres](/assets/missao-catolica-portuguesa-em-londres.jpg)
+
 ## Missa online
 
 Terça a Sábado às 19:00 na nossa pagina do facebook >> [CCP - Capelania Portuguesa](https://www.facebook.com/pages/category/Catholic-Church/Capelania-Portuguesa-1856454771143557/) <<
